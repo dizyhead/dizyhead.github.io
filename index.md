@@ -2,7 +2,7 @@
 
 You can see me on [Facebook](https://www.facebook.com/agus.stiawant)
 
-Or Follow me on [Instagram](https://www.instagram.com/dizhead)
+Or Follow me on [Instagram](https://www.instagram.com/dizyhead)
 
 ### Markdown
 
