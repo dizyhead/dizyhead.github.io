@@ -1,2 +1,2 @@
 # dizyhead.github.io
-Dizyhead ID - Profile
+Dizyhead a.k.a Agu Setiawan
